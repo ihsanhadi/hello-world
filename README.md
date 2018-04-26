@@ -1,4 +1,4 @@
 # hello-world
 just try some stuff
 
-Mempelajari artinya hidup ini dengan melihat air yang mengalir di got
+Apalah arti cinta jika saya tak bisa berbahasa indonesia
